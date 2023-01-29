@@ -8,4 +8,4 @@ layout: soulwinning
 
 ___
 
-## [Click here to start](/soulwinning/soulwinning-instruction)
+## [Click here to start](/soulwinning-instruction)
