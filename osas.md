@@ -81,4 +81,4 @@ Don't go crazy with the examples e.g mass murderers, serial killers, or you will
 
 ___
 
-## [Next: Finishing Leading in Prayer](/soulwinning/soulwinning-instruction/lead-in-prayer)
+## [Next: Finishing Leading in Prayer](/lead-in-prayer)
