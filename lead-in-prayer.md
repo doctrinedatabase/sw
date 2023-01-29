@@ -68,7 +68,7 @@ After you've prayed - **what's next?**
 Say _“Hey you meant that, didn't you. You know the Bible says you're on your way to Heaven. There's nothing you can do to lose it. Isn't that great news?”_
 
 #### Leave them with something to help them grow as a new Christian:
-* [New Believer PDF](https://cdn.discordapp.com/attachments/974486895180533780/998486903617753098/New_Believer.pdf) by [Clarissa](https://www.reddit.com/user/ClarissaRomans4/)
+* [New Believer](https://geteternal.life/blog/new-believers)
 * Invite them to [Saved Baptists](https://discord.gg/7R4Aqyxmz2)
 * New Testament/Full Bible (KJV)
 * DVD/Preaching CD
