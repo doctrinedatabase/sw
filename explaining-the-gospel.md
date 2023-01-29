@@ -148,4 +148,4 @@ What must we do to be saved?
 
 ___
 
-### [Next: Once Saved, Always Saved (OSAS)](/soulwinning/soulwinning-instruction/osas)
+### [Next: Once Saved, Always Saved (OSAS)](osas)
